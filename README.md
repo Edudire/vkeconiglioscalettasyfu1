@@ -1,1 +1,0 @@
-# vkeconiglioscalettasyfu1
